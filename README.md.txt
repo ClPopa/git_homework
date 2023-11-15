@@ -1,1 +1,1 @@
-Lot of new and interesting things 
+Lot of new and interesting things
